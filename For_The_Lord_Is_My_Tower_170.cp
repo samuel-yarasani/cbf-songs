@@ -1,0 +1,1 @@
+[{"c":"<p>Song Number : 170</p>"},{"c":"<p>For The Lord Is My Tower</p><p>And He gives me the power</p><p>To tear down the works of the enemy or</p><p>(To run the race that Jesus has set for me)</p><p>In a difficult hour He will crush and devour</p><p>And bring the power of darkness</p><p>underneath my feet</p>"}]
